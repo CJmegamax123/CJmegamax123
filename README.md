@@ -7,5 +7,4 @@
 - 💬 Ask me about anything; I'm generally an open book and love engaging conversations!
 - How to reach me: Email CCJJ2000@yahoo.com
 - Pronouns: He/Him
-- Fun fact: If you want to know more, come ask 
--->
+- Fun fact: If you want to know more, come ask!
